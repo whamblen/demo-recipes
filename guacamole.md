@@ -7,3 +7,4 @@
 Put the stuff in a bowl
 Mix it
 Add a lot of black pepper
+add red pepper flakes
